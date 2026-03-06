@@ -11,3 +11,5 @@ I am currently in my 2nd semester of Software Engineering, where I am building a
 
 ### 📫 Let's Connect!
 - **LinkedIn:** https://www.linkedin.com/in/nawabumer512
+- **Instagram:** https://www.instagram.com/nawabumer512
+- **Email:** nwabumer512@gmail.com
